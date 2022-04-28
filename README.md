@@ -1,10 +1,14 @@
-### Hi there 👋
-*Como chegar até mim: email: klarabecker20@gmail.com 
+# Hi there 
+*sou Clara Becker, Formigueirense, Agudense, ex Faxinalense e por aí vai, estudante de informatica para internet no CTISM*
+## Pronomes:ela/dela
 
-*instagram: klarabecker20
+## hobbies
+###eu gosto de
+* andar a cavalo
+* ouvir musica
+* viajar
 
-*twitter:klarabecker
+##Como chegar até mim
 
-*Pronomes:ela/dela
-
-*Curiosidades: ando de cavalo desde que eu tenho 1 ano
+* email: klarabecker20@gmail.com
+* instagram: <https://www.instagram.com/accounts/onetap/?next=%2F>
