@@ -29,7 +29,7 @@
 * as coisas que as pessoas mais gostam em mim são minha mãe e minha melhor amiga
 * aprendi a jogar pife e bisca por causa da pandemia
 
-##serie favorita
+## serie favorita
 ! [alt text](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.amazon.com.br%2FSave-Life-Bastidores-GreyS-Anatomy%2Fdp%2F6589087466&psig=AOvVaw1LeJzgUVbB1aU_GMXUsi_Y&ust=1652445380756000&source=images&cd=vfe&ved=0CAwQjRxqFwoTCIDoqML82fcCFQAAAAAdAAAAABAD)
 
 ## filme favorito
