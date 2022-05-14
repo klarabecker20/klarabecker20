@@ -1,5 +1,5 @@
 # Hi there 🤠 
-![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.pngwing.com%2Fpt%2Ffree-png-skbnn&psig=AOvVaw3FRJV2X47Gpguj1KmQw8gX&ust=1652445572187000&source=images&cd=vfe&ved=0CAwQjRxqFwoTCIjwxZ392fcCFQAAAAAdAAAAABAD)
+![alt text](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.pngwing.com%2Fpt%2Ffree-png-skbnn&psig=AOvVaw3FRJV2X47Gpguj1KmQw8gX&ust=1652445572187000&source=images&cd=vfe&ved=0CAwQjRxqFwoTCIjwxZ392fcCFQAAAAAdAAAAABAD)
 *sou Clara Becker, Formigueirense, Agudense, ex Faxinalense e por aí vai, estudante de informatica para internet no CTISM*
 ## Pronomes:ela/dela 👩 
 
@@ -30,7 +30,7 @@
 * aprendi a jogar pife e bisca por causa da pandemia
 
 ##serie favorita
-! [](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.amazon.com.br%2FSave-Life-Bastidores-GreyS-Anatomy%2Fdp%2F6589087466&psig=AOvVaw1LeJzgUVbB1aU_GMXUsi_Y&ust=1652445380756000&source=images&cd=vfe&ved=0CAwQjRxqFwoTCIDoqML82fcCFQAAAAAdAAAAABAD)
+! [alt text](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.amazon.com.br%2FSave-Life-Bastidores-GreyS-Anatomy%2Fdp%2F6589087466&psig=AOvVaw1LeJzgUVbB1aU_GMXUsi_Y&ust=1652445380756000&source=images&cd=vfe&ved=0CAwQjRxqFwoTCIDoqML82fcCFQAAAAAdAAAAABAD)
 
 ## filme favorito
-! [](https://www.google.com/url?sa=i&url=http%3A%2F%2Fredeglobo.globo.com%2Ffilmes%2Fnoticia%2F2013%2F02%2Fdrama-jogo-da-vida-e-baseado-em-um-famoso-romance-infantil-europeu.html&psig=AOvVaw2vfsDK-UaB5EqacUJYGaeD&ust=1652445498891000&source=images&cd=vfe&ved=0CAwQjRxqFwoTCKDTsvz82fcCFQAAAAAdAAAAABAD)
+! [alt text](https://www.google.com/url?sa=i&url=http%3A%2F%2Fredeglobo.globo.com%2Ffilmes%2Fnoticia%2F2013%2F02%2Fdrama-jogo-da-vida-e-baseado-em-um-famoso-romance-infantil-europeu.html&psig=AOvVaw2vfsDK-UaB5EqacUJYGaeD&ust=1652445498891000&source=images&cd=vfe&ved=0CAwQjRxqFwoTCKDTsvz82fcCFQAAAAAdAAAAABAD)
