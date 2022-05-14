@@ -1,7 +1,7 @@
 # Hi there 🤠 
 ![alt text](https://st2.depositphotos.com/1001911/6524/v/950/depositphotos_65242063-stock-illustration-hat-tip-emoticon.jpg)
 
-*sou Clara Becker, Formigueirense, Agudense, ex Faxinalense e por aí vai, estudante de informatica para internet no CTISM*
+*sou Clara Becker, tenho 15 anos, sou Formigueirense, Agudense, ex Faxinalense e por aí vai, estudante de informatica para internet no CTISM*
 ## Pronomes:ela/dela 👩 
 
 ## hobbies
@@ -19,7 +19,7 @@
 ## MBTI
 * ESFP
 
-## curiosidadesn aleatorias 
+## curiosidades aleatorias 
 * tenho um coelho, uma égua mas meu animal favorito é gato (??????)
 * sou colorada e AMO ver futebol desde bem pequena
 * um dia perfeito pra mim, tem  amigos, familia, cavalos e musicas
