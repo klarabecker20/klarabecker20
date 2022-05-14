@@ -31,6 +31,6 @@
 * aprendi a jogar pife e bisca por causa da pandemia
 
 ## serie favorita
-![alt text] (https://i.pinimg.com/736x/2b/14/4c/2b144c4e66c66549bc2a4ef47d678ceb.jpg)
+![alt text](https://i.pinimg.com/736x/2b/14/4c/2b144c4e66c66549bc2a4ef47d678ceb.jpg)
 ## filme favorito
-![alt text] (http://s2.glbimg.com/9Lf7_s4URcgJ_cYvJZ6wejtZSLGRwDLCXsH8IsQXntZIoz-HdGixxa_8qOZvMp3w/s.glbimg.com/og/rg/f/original/2013/02/27/livro.jpg)
+![alt text](http://s2.glbimg.com/9Lf7_s4URcgJ_cYvJZ6wejtZSLGRwDLCXsH8IsQXntZIoz-HdGixxa_8qOZvMp3w/s.glbimg.com/og/rg/f/original/2013/02/27/livro.jpg)
