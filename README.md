@@ -1,5 +1,6 @@
 # Hi there 🤠 
-![alt text](https://st2.depositphotos.com/1001911/6524/v/950/depositphotos_65242063-stock-illustration-hat-tip-emoticon.jpg)
+
+<img src="https://st2.depositphotos.com/1001911/6524/v/950/depositphotos_65242063-stock-illustration-hat-tip-emoticon.jpg" width="300px">
 
 *sou Clara Becker, tenho 15 anos, sou Formigueirense, Agudense, ex Faxinalense e por aí vai, estudante de informatica para internet no CTISM*
 ## Pronomes:ela/dela 👩 
@@ -31,6 +32,7 @@
 * aprendi a jogar pife e bisca por causa da pandemia
 
 ## serie favorita
-![alt text](https://i.pinimg.com/736x/2b/14/4c/2b144c4e66c66549bc2a4ef47d678ceb.jpg)
+<img src="https://camo.githubusercontent.com/3ab4570676a3635793973a45a2288032440e4ff3291ba6456a10c9efd63e174b/68747470733a2f2f692e70696e696d672e636f6d2f373336782f32622f31342f34632f32623134346334653636633636353439626332613465663437643637386365622e6a7067" width="300px">
+
 ## filme favorito
-![alt text](http://s2.glbimg.com/9Lf7_s4URcgJ_cYvJZ6wejtZSLGRwDLCXsH8IsQXntZIoz-HdGixxa_8qOZvMp3w/s.glbimg.com/og/rg/f/original/2013/02/27/livro.jpg)
+<img src="http://s2.glbimg.com/9Lf7_s4URcgJ_cYvJZ6wejtZSLGRwDLCXsH8IsQXntZIoz-HdGixxa_8qOZvMp3w/s.glbimg.com/og/rg/f/original/2013/02/27/livro.jpg" width="300px">
