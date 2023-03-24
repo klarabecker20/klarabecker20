@@ -2,7 +2,7 @@
 
 <img src="https://st2.depositphotos.com/1001911/6524/v/950/depositphotos_65242063-stock-illustration-hat-tip-emoticon.jpg" width="300px">
 
-*sou Clara Becker, tenho 15 anos, sou Formigueirense, Agudense, ex Faxinalense e por aí vai, estudante de informatica para internet no CTISM*
+*sou Clara Becker, tenho 16 anos, sou Formigueirense, Agudense, ex Faxinalense e por aí vai, estudante de informatica para internet no CTISM*
 ## Pronomes:ela/dela 👩 
 
 ## hobbies
@@ -14,7 +14,7 @@
 ## Como chegar até mim
 
 * 📧 email:<klarabecker20@gmail.com>/<clara.becker@acad.ufsm.br>
-* 📱 instagram:<https://www.instagram.com/klarabecker20/>
+* 📱 instagram:<https://www.instagram.com/clara_becker20/>
 * 🦤 twitter:<https://www.twitter.com/__kaks_/>
 
 ## MBTI
