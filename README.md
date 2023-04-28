@@ -28,7 +28,6 @@
 * gosto de viajar de carro com a minha familia e ficar ouvindo as mesmas musicas por 200 horas
 * meu maior medo na infância era a vaca do toddy por que sonhei varias vezes seguidas com ela me ameaçando de me dar um soco 
 * ando a cavalo desde que tenho 2 anos
-* as coisas que as pessoas mais gostam em mim são minha mãe e minha melhor amiga
 * aprendi a jogar pife e bisca por causa da pandemia
 
 ## serie favorita
